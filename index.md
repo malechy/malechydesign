@@ -7,7 +7,9 @@
 
 ## About
 
-## Honour Among Thieves
+## Honour Among Thieves  
+[**Play Now!**]()
+
 
 ## Game 2
 
